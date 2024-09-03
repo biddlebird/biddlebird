@@ -7,6 +7,6 @@
 
 - [I love this bird](https://www.audubon.org/news/bone-eating-bearded-vulture-reclaiming-europes-skies)
 
-![Alt.text](https://github.com/biddlebird/biddlebird/blob/main/Photos/sea_slug.jpeg)
+![Alt.text](https://github.com/biddlebird/biddlebird/blob/main/Photos/Web_metamorphose_vortrag_0.jpg.webp)
 
 
